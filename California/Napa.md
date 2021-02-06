@@ -1,1 +1,2 @@
-No tips submitted for this location yet.
+[https://www.countyofnapa.org/3096/COVID-19-Vaccines] (https://www.countyofnapa.org/3096/COVID-19-Vaccines)
+Seems like Napa county has halted vaccinations due to potential fear of running out of dose 2 vaccines [https://www.sfchronicle.com/bayarea/article/Napa-County-halts-first-dose-vaccinations-due-to-15926330.php] (https://www.sfchronicle.com/bayarea/article/Napa-County-halts-first-dose-vaccinations-due-to-15926330.php)

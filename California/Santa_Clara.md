@@ -8,3 +8,7 @@
 ### Update as of 2/6
 Appointments for 2/22 - 2/26 available here:
 [https://healow.com/apps/practice/bay-area-community-health-2998#](https://healow.com/apps/practice/bay-area-community-health-2998#)
+
+## Update as of 2/8
+Appointments for Levis' Staidum for 2/10-2/11 available here:
+[https://vax.sccgov.org/levis](https://vax.sccgov.org/levis)
